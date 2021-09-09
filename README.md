@@ -1,2 +1,2 @@
 cringe
-imgine look at people 
+imgine looking at people 
